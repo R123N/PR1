@@ -2,7 +2,7 @@
 
 ## Работа с GIT
 
-<p align="center"><img src="t.me/rand2ch/71972" width = "350"></p>
+<p align="center"><img src="https://4tololo.ru/sites/default/files/images/20161404165243.jpg?itok=RjkOUU7p" width = "350"></p>
 
 <p><a href="https://vk.com/r123n">VK</a></p>
 
